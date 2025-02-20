@@ -15,8 +15,9 @@
 
 ## Social Impact Reflection
 
-Answer the following question either verbally in a 2-3 minute speech or in paragraph form. Use professional language. 
+Answer the following question either verbally in a 2-3 minute speech or in paragraph form. Use professional language. You may need to do some additional research to answer this question.
 
+How are governments and companies currently preparing for "the quantum apocalpyse"?  
 
 # Rubric
 
